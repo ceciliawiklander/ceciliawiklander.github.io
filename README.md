@@ -8,3 +8,5 @@ På biblioteket har vi tre enheter
 En massa böcker som gallras ut
 
 Men en massa glada bibliotekarier finns kvar
+
+Femton laxar i laxask
